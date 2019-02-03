@@ -52,22 +52,20 @@ If you are done talking to PoetryBot, just end the conversation by saying goodby
 
 **PoetryBot**: 
 
-    "Why so fair thou promise such interchange of such a far more re-survey these blenches gave my soul 
-     Which sourly robs from his visage hide 
-     Stealing unseen to heave the while i still for fear her 
-     O o then my verse so my stain 
-     Never believe 
-     Though delayed 
-     Answered must be 
-     To eternity doth to do 
-     Not not still keep her breath thou shrieking harbinger 
-     Foul precurrer of dross 
-     Within thine eyes are painted new 
-     Why so my will not directly tell 
-     But being both high and twenty 
-     Youth 's a true soul 
-     When in some ghastly sprite 
-     Whose ranks of"
+    "But let them do not glance thine eye i not be removed . 
+     And made of the wrong that she is not kept , 
+     And proved , 
+     If between them love did except ? 
+     If thou break , 
+     Nor dare i desperate now crown themselves their rotten smoke ? 
+     Take , 
+     Where is my cloak ? 
+     Such civil war shall be you have some mother . 
+     Enjoyed no more rich in my good one more than hates known injury . 
+     One on form another , 
+     As proud livery . 
+     Swelling on my black wires grow on to her false-speaking tongue : 
+     For how shall not to thy lights flame to torture me young"
             
 **PoetryBot**: "May I ask thee, my friend. Did you enjoyeth the poem?"
 
